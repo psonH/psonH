@@ -15,3 +15,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: Passionate, Determined, Headstrong
 - ⚡ Fun fact: I can cook, sing and teach (on literally any topic)
 
+
+[![Topmate](https://topmate-readme-badge.onrender.com/priyank_hajela?style=flat)](https://topmate.io/priyank_hajela)

@@ -12,6 +12,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking to help with making the world a better place by pouring in my gifts - my skills, talent and creativity.
 - 💬 Ask me about Coding, UI/UX, Tiny Houses, Food, Cats
 - 📫 How to reach me: https://www.linkedin.com/in/priyank-hajela/
-- 😄 Pronouns: Passionate, Determined, Headstrong
+- 😄 What describes me?: Passionate, Determined, Headstrong
 - ⚡ Fun fact: I can cook, sing and teach (on literally any topic)
 
